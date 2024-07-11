@@ -1,1 +1,1 @@
-![redFHD](https://github.com/jaerdeem/jaerdeem/assets/80523209/fdda72b8-6105-4054-85a9-d84ccd550b34)
+![banner](https://github.com/jaerdeem/jaerdeem/assets/80523209/275656e8-ac00-433d-9eaf-bdd2006897f6)
